@@ -1,0 +1,2 @@
+# BMpartfolya
+partfolya kirb koring
